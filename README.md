@@ -1,3 +1,3 @@
-#Miner Enabled!💵
+Miner Enabled!💵
 
-#Created by PlayBackMobile✔
+Created by PlayBackMobile✔
